@@ -60,7 +60,7 @@ I would like to thank **ApexPlanet Software Pvt. Ltd.** for providing this oppor
 
 ## 🔗 Connect with Me
 
-- LinkedIn: (Add your profile link here)
+- LinkedIn: (https://www.linkedin.com/posts/gouthami-borkute-772344397_apexplanet-dataanalytics-eda-ugcPost-7447840916205146115-9-FR?utm_source=share&utm_medium=member_desktop&rcm=ACoAAGFnd0YBl-_rpp-Sx_TmSMAvBfI5i_FF-D8)
 
 ---
 
